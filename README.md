@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Hitch-96
+- 👀 I’m interested in Physics, Computer Science (Quantum Computing & Computer Graphics), Finance and Economics.
+- 💞️ I’m looking to collaborate on these topics.
+- 📫 How to reach me: h.belmelih@gmail.com
